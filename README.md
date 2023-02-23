@@ -1,1 +1,3 @@
-# Fabico-IT128L-
+Stephanie Fabico
+IT128L -FOPI01
+BSIT
